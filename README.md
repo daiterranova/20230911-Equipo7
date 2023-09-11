@@ -3,4 +3,5 @@
 Lider: Daiana Terranova
 
 ## Integrantes
-- **Jesus Mendoza**
+**Jesus Mendoza**
+Ecuador 🇪🇨 
