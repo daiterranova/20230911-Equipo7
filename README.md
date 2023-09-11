@@ -6,3 +6,4 @@ Lider: Daiana Terranova
 - **Jesus Mendoza**
 - **Maite Benitez**
 - **Tiffany Jordan**
+- **Eloisa Salvarrey**
