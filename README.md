@@ -4,3 +4,4 @@ Lider: Daiana Terranova
 
 ## Integrantes
 - **Jesus Mendoza**
+- - **Maite Benitez**
