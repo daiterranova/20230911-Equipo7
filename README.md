@@ -7,3 +7,7 @@ Lider: Daiana Terranova
 - **Maite Benitez**
 - **Tiffany Jordan**
 - **Eloisa Salvarrey**
+
+- **Maite Benitez**
+#### Argentina
+Vivo en Argentina 🌎🌎 
